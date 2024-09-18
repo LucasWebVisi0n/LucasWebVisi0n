@@ -1,0 +1,6 @@
+- 👋 Hi, I’m visi0n.fn
+- 👀 I’m interested in fortnite
+- 🌱 I’m currently making this 
+- 📫 How to reach me @Visi0nOffWhite@gmail.com
+- 😄 Pronouns:  He/Him
+- ⚡ Fun fact: i am making this 
